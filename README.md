@@ -1,5 +1,3 @@
-# Group_0711
- 
 INTRODUCTION
 ------------
 
